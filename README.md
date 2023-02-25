@@ -36,6 +36,10 @@
 
 [Index真可爱！ (dnlab.net)](https://index.dnlab.net/%E5%AD%A6%E7%A7%91/%E7%89%A9%E7%90%86?hash=5ze4pekW)
 
+# 📖
+
+https://1drv.ms/u/s!ApVkohygaQYIrTZWgacG6rqsHZFa?e=6SbzuG
+
 # 教程
 
 [CPHO 入门手册 - CPHO 入门手册](https://tutorial.cpho.wiki/)
